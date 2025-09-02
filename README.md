@@ -1,4 +1,4 @@
-# 👋 Salut, je suis Kiala Stimsone ! 
+# 👋 Salut, je suis SIVI KIALA Stimsone ! 
 
 Bienvenue sur mon profil GitHub ! Ici, vous découvrirez mes projets, mes intérêts et mes contributions dans le domaine du génie électrique et des énergies renouvelables.
 
